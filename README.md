@@ -1,0 +1,1 @@
+# Consumer-Goods-AD-Hoc-Insights
